@@ -4,8 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing because I AM collaborating now :)
 - 📫 How to reach me 
 reach me through mail: iamsoham2011@gmail.com
-or discord: SohamMukherjee2007#2011
-or instagram: @sohamm2011
+or discord: SohamMukherjee2007#6817
 
 <!---
 SohamMukherjee2011/SohamMukherjee2011 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
